@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @OhRelaxo
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning how to programm :)
